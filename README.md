@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **chiayinlee03@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/lee-chia-yin-3437061ab]
+- 📄 Know about my experiences **www.linkedin.com/in/lee-chia-yin-3437061ab**
 
 - ⚡ Fun fact **I am 03's Malaysia girl👧🏻**
 
