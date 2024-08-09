@@ -1,5 +1,5 @@
 <h1 align="center">Bello👋, This is Chiayin Lee</h1>
-<h3 align="center">A Computer Science student exploring the digital world</h3>
+<h3 align="center">A Computer Science student exploring the digital world🪄</h3>
 
 - 🌱 I’m currently learning **how to become a programmer**
 
